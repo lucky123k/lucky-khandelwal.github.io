@@ -1,1 +1,0 @@
-# lucky-khandelwal.github.io
